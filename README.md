@@ -1,5 +1,5 @@
-(🍀🌱🌾) As if web was a home to harvest words— 
-designing (✍️) & talking to website (🧑🏻‍💻) using different voices (kirbyCMS) from [somewhere](https://pual.cool) between two pages (🛌).
+(🍀🌱🌾) As if the world wide web was a home to harvest words— 
+designing (✍️) & talking to websites (🧑🏻‍💻) using different voices (kirbyCMS) from [somewhere](https://pual.cool) between two pages (🛌).
 ---
 —   Typing on a typewriter, building and designing [Lily Greenham's Archive](https://lilygreenham.org) (2024) _1ch_ at a time, \
 —   Singing [HCM.earth](https://hcm.earth/) (2024) like 4 crazy birds with studio Jim Fontana, \
