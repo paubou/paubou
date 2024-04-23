@@ -5,5 +5,5 @@ designing (✍️) & talking to websites (🧑🏻‍💻) using different voice
 —   Singing [HCM.earth](https://hcm.earth/) (2024) like 4 crazy birds with studio Jim Fontana, \
 —   Planting trees, flowers and harvesting in a [Royal Garden](http://dev.pual.cool/RG/) (2023 - today) with Alex Balgiu & Olivier Lebrun, \
 —   [François Pragnère](https://francoispragnere.fr) (2023) unfolding the tablecloth to play cards with Marius Astruc, \
-—   [Jim Fontana](https://studiojimfontana.fr) (2022) Designed and coded with Jim Fontana, \
-—   Coding and designing the online portfolio of [Milo Reid](https://miloreid.com) (2022) 
+—   JJJJJ [Jim Fontana](https://studiojimfontana.fr) (2022) Designed and coded with Jim Fontana, \
+—   While the image is in focus, coding and designing the online portfolio of [Milo Reid](https://miloreid.com) (2022) 
