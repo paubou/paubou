@@ -1,5 +1,5 @@
 (🍀🌱🌾) As if the world wide web was a home to harvest words— 
-designing (✍️) & talking to websites (🧑🏻‍💻) using different voices (kirbyCMS) from [somewhere](https://pual.cool) between two pages (🛌).
+designing (✍️) & talking to websites (🧑🏻‍💻) using different voices (kirbyCMS) from [somewhere](https://paulbouigue.fr) between two pages (🛌).
 ---
 —   Presenting PDF files with Jim Fontana & [Stéphanie Raimondi](https://stephanieraimondi.com/) (2025), \
 —   Folding and unfolding with Jim Fontana for [Chloé Vanderstaeten](https://chloevanderstraeten.com/) (2024), \
