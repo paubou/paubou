@@ -10,3 +10,4 @@ designing (✍️) & talking to websites (🧑🏻‍💻) using different voice
 —   Planting trees, flowers and harvesting in a [Royal Garden](https://bibliomania.xyz/) (2023 - today) with Alex Balgiu & Olivier Lebrun, \
 —   [François Pragnère](https://francoispragnere.fr) (2023) unfolding the tablecloth to play cards with Marius Astruc, \
 —   While the image is in focus, coding and designing the online portfolio of [Milo Reid](https://miloreid.com) (2022) 
+—   Walking around pictures and deciding their orientation with [Catherine Viollet](https://catherineviollet.fr) (2021) 
